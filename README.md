@@ -1,2 +1,0 @@
-# androidtutorial
-# androidtutorial
